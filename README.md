@@ -1,0 +1,1 @@
+# UK-Hong-Kong-Australia-Singapore-University-Academic-Calendar
